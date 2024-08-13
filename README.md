@@ -1,5 +1,5 @@
 meu nome e Kauã =)
-esse treco servira para guardar os coisa de pensamnto computacional
+esse treco servira para guardar os coisa de pensamto computacional
 Eu gosto de carros e motos
 vruuummmmmmmmm
 estudo no primeiro ano do ensino medio do colegio estaduaal sagrada familia de campo largo PR
